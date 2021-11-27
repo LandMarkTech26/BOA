@@ -7,3 +7,5 @@ phase one is for four months
 we need to define the project manager
 we need to identify all the stakeholders as well
 and our different modes of communication.
+As the leader i will nominate at least 2 people and everone can nominate 1 person each
+we will do a peaceful ballot vote and select four person(s)
